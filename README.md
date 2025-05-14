@@ -38,7 +38,7 @@ https://github.com/user-attachments/assets/bc5075d0-77e2-4278-ba11-8260b7813c86
 ## 📬 Contact
 
 Have questions or suggestions? 
-Open an issue or connect with me via [LinkedIn](https://www.linkedin.com](https://www.linkedin.com/in/rhythmica-a-m-591687232/) or email me at rhythmica02@gmail.com 
+Open an issue or connect with me via [LinkedIn](https://www.linkedin.com/in/rhythmica-a-m-591687232/) or email me at rhythmica02@gmail.com 
 
 
 
